@@ -3,8 +3,7 @@ layout: post
 title: Wilson Evolution Official Basketball
 ---
 
-![wilson bb](wilson-bb-1.jpeg)
-
+![wilson](willson-bb-1.jpeg)
 ## The Basketball
 
 I normally use the basketball called "Wilson" because I peronally think that it has better quality on how it bounces. 
